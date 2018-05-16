@@ -1,1 +1,12 @@
-# s22
+http://www.ttzun.com
+http://www.twooo.net
+http://www.txccd.com
+http://www.ubzzz.com
+http://www.uofk9.com
+http://www.usd46.com
+http://www.uvioo.net
+http://www.v2222.net
+http://www.zccsb.com
+http://www.zcggd.com
+http://www.zcysz.com
+http://www.zdssx.com
